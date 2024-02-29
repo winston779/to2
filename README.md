@@ -1,6 +1,6 @@
 # To2机场官网地址
 
-最新地址：[totwo.top](https://totwo.top/#/register?code=wlBNqaZB)
+最新地址：[totwo.top](https://ai.totwo.top/#/register?code=wlBNqaZB)
 
 ## To2机场介绍
 
